@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shelldor_Sunny
 - 👀 I’m interested in AI 
-- 🌱 I’m currently learning BLOCKCHAI DEVELOPMENT
+- 🌱 I’m currently learning fullstack DEVELOPMENT
 - 📫 How to reach me INSTAGRAM ID:- @achkababa_chachkababa
 - 
 
