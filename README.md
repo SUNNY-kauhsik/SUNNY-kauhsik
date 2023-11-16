@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shelldor_Sunny
-- 👀 I’m interested in AI (don know shit about it tho)
+- 👀 I’m interested in AI (don know shit about it tho,"as of now")
 - 🌱 I’m currently learning fullstack DEVELOPMENT
 - 📫 How to reach me INSTAGRAM ID:- @achkababa_chachkababa
 - 
